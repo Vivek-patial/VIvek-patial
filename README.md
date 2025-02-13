@@ -1,3 +1,7 @@
+<img src="Turquoise and Monochrome Photo Heading Website Facebook Cover.png">
+
+
+
 ## Hi there , A developer from India👋
 🧑🏻‍🎓Perusing MCA from Lovely Professional University <br>👨🏼‍💻 Working as a web developer since 2024<br>💻 Working on my own page <br><br>
 
